@@ -143,3 +143,78 @@ Make her smile
 C              F    C
 Make her smile
 
+
+---
+
+Monsters - ANGUS STONE
+[Verse]
+A#m, C#
+ 
+[Chorus]
+D#m, F#, A#m, C#
+Link: http://www.youtube.com/watch?v=JrD8QlsIgqQ
+ 
+[Lyrics]
+A#m               C#
+Billy was a train, driving man
+He went from one side to the other side of town
+He went to bed with the light on
+He went to bed with the light on
+ 
+Ride on
+ 
+He found his struggle with the wind
+Something we never, came to understand
+He felt lost, in the dark
+Even when there was someone, he felt apart
+ 
+Alone
+Alone
+Alone
+ 
+D#m            F#
+Cause in the, dark
+    A#m           C#
+There's monsters, they cry alone
+D#m              F#
+They're waiting
+A#m                     C#
+For you to come along, and play
+A#m                     C#
+For you to come along, and play
+ 
+He made his way to the liquor store
+couldn't help but notice, the man at the door
+Yeah he did, he caught his eye
+He said sir, please a nickel, before I die
+ 
+Alone
+Alone
+Alone
+ 
+Cause in the, dark
+There's monsters, they cry alone
+They're waiting
+For you to come along, and play
+For you to come along, and play
+And play
+For you to come along, and play
+And play
+ 
+Cause in the, the dark
+There's monsters, they cry alone
+They're waiting
+For you to come along, and play
+ 
+Cause were monsters at heart
+At heart, at heart
+There's monsters, in their hearts
+Their hearts
+ 
+For you to come along and play
+And play
+For you to come along
+And play
+ 
+Billy was a train driving man
+He got lost, some place in the wind
